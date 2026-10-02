@@ -1,0 +1,1 @@
+# jibunrashii-katakata
